@@ -12,4 +12,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://i.postimg.cc/Vv2Lr5vX/tumblr-1eb8f9311c799dda733dbd6336549477-841ac5bc-100.png" width="100px"/>
+<p align="center"><img src="https://i.postimg.cc/6QscbVrk/Tumblr-l-131000635770494.gif" width="100px"/>
