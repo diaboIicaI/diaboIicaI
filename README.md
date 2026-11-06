@@ -2,7 +2,7 @@
   ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center"><img src="https://file.garden/alBXw3vMmEB_85NM/256%20sin%20t%C3%ADtulo_20261105013124.png" width="660px"/>
+<p align="center"><img src="https://files.catbox.moe/83g2dq.png" width="660px"/>
 <p align="center">
 ᨳ ㅤ𝑣ᧉ𝗂𝔩yn𝑒    ◌    𝗌ℎᧉ 𓏼 ℎᧉ 𓏼 𝖺𝔫𝑦   ◌   14𝑦𝑜 ㅤଓ
 <p align="center"><img src="https://file.garden/alBXw3vMmEB_85NM/195%20sin%20t%C3%ADtulo_20261105012448.png"  width="550px"/> </p>
